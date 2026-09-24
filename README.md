@@ -32,3 +32,5 @@
 
 
                                          . that's all i think, sorry for the yap session .
+
+ <img width="1000" height="300" alt="Image" src="https://github.com/user-attachments/assets/3fe3ccd4-4ec4-4012-b531-252da98e03eb" />
