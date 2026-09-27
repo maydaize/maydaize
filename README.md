@@ -1,4 +1,4 @@
-            ``You can pave your own path, and I hope at the end of it you can look back and be proud of what you did``
+ $\text{\color{#5e0600} ``You can pave your own path, and I hope at the end of it you can look back and be proud of what you did`` }$\
 
 
 
