@@ -40,13 +40,17 @@ $\text{\color{#7d0200}. on the otherhand, i like a lot of stuff like dogs, phigh
 
 $\text{\color{#7d0200}. what i don't like are people who are purposefully mean or rude, to me or others .}$
                                      
-$\text{\color{#7d0200}. and that brings me to my dni i guess... .}$
-
+$\text{\color{#7d0200}. and that brings me to my}$ $\text{\color{#bf7541}dni}$ $\text{\color{#7d0200}i guess... .}$
+\
+\
+\
 $\text{\color{#7d0200}. literally just don't purposefully try to offend me or others and cause/forward problematic media/ideas/etc. and we're chill .}$
 
 $\text{\color{#7d0200}. if i tell you to not interact than don't interact, even if the criteria above doesn't apply to you .}$
-
-$\text{\color{#7d0200}. that's all i think, sorry for the yap session and the incredibly unaesthetic bio.}$
+\
+\
+\
+$\text{\color{#d9c5c1}. that's all i think, sorry for the yap session and the incredibly unaesthetic bio.}$
 
  <img width="1000" height="300" alt="Image" src="https://github.com/user-attachments/assets/3fe3ccd4-4ec4-4012-b531-252da98e03eb" />
  </div>
