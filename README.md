@@ -30,9 +30,11 @@ $\text{\color{#7d0200} but i think it's funny that he's not my overall favorite}
          
 $\text{\color{#d9c5c1}. ESP/ENG/POR speaker .}$
 
-$\text{\color{#7d0200}. i don't talk much but don't be afraid of interacting, i'm just on the reserved side .}$
+$\text{\color{#7d0200}. unlabeled queer guy .
 
-$\text{\color{#7d0200}. i am trying to be open though :] .}$
+$\text{\color{#7d0200}. very reserved, i will probably not start interactions out of anxiety .}$
+
+$\text{\color{#7d0200}. talking has been getting less scary in the last couple years though :] .}$
 \
 \
 \
