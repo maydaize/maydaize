@@ -30,7 +30,7 @@ $\text{\color{#7d0200} but i think it's funny that he's not my overall favorite}
          
 $\text{\color{#d9c5c1}. ESP/ENG/POR speaker .}$
 
-$\text{\color{#7d0200}. unlabeled queer guy . }$
+$\text{\color{#7d0200}. unlabeled random guy . }$
 
 $\text{\color{#7d0200}. very reserved, i will probably not start interactions out of anxiety .}$
 
