@@ -39,7 +39,9 @@ $\text{\color{#7d0200}. very reserved but i would be glad to chat, i will probab
 \
 $\text{\color{#7d0200}. on the otherhand, i like a lot of stuff like dogs, phighting, tea, dogs again, psychology, biology, idk i like a bunch of stuff .}$
 
-$\text{\color{#25437a}. oh yeah and im a proud hyper main, i love my goat, drawing him is a genuine struggle though .}$
+$\text{\color{#25437a}. oh yeah and im a proud hyper main, he's awesome, drawing him is a genuine struggle though .}$
+
+<img align="center" width="100" height="144" alt="Image" src="https://github.com/user-attachments/assets/176cdcc6-f7d6-43fd-a185-d37d2ece6f24" />
                                      
 $\text{\color{#7d0200}. and that brings me to my}$ $\text{\color{#bf7541}dni}$ $\text{\color{#7d0200}i guess... .}$
 \
