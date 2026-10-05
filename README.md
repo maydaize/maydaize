@@ -32,15 +32,14 @@ $\text{\color{#d9c5c1}. ESP/ENG/POR speaker .}$
 
 $\text{\color{#7d0200}. unlabeled random guy . }$
 
-$\text{\color{#7d0200}. very reserved, i will probably not start interactions out of anxiety .}$
+$\text{\color{#7d0200}. very reserved but i would be glad to chat, i will probably not be the first to interact out of anxiety though.}$
 
-$\text{\color{#7d0200}. talking has been getting less scary in the last couple years though :] .}$
 \
 \
 \
 $\text{\color{#7d0200}. on the otherhand, i like a lot of stuff like dogs, phighting, tea, dogs again, psychology, biology, idk i like a bunch of stuff .}$
 
-$\text{\color{#7d0200}. what i don't like are people who are purposefully mean or rude, to me or others .}$
+$\text{\color{#25437a}. oh yeah and im a proud hyper main, i love my goat, drawing him is a genuine struggle though .}$
                                      
 $\text{\color{#7d0200}. and that brings me to my}$ $\text{\color{#bf7541}dni}$ $\text{\color{#7d0200}i guess... .}$
 \
