@@ -8,7 +8,7 @@ $\text{\color{#bf7541}``You can pave your own path; I just hope at the end of it
 \
 \
 \
-$\text{\color{#7d0200} . hey, my friends call me jazz .}$
+$\text{\color{#7d0200} . hey, my friends call me jazz/jas .}$
 <br/><br/><br/>
 </div>
 
@@ -55,5 +55,5 @@ $\text{\color{#7d0200}. if i tell you to not interact than don't interact, even 
 \
 $\text{\color{#d9c5c1}. that's all i think, sorry for the yap session and the incredibly unaesthetic bio.}$
 
- <img width="1000" height="300" alt="Image" src="https://github.com/user-attachments/assets/3fe3ccd4-4ec4-4012-b531-252da98e03eb" />
+ <img width="400" height="305" alt="Image" src="https://github.com/user-attachments/assets/513a7dcf-bb04-40ae-857f-1363ad1976f8" />
  </div>
