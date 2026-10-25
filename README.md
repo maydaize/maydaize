@@ -22,7 +22,7 @@ $\text{\color{#925ea0} funny enough he's not my overall favorite}$
          
 $\text{\color{#c28aa7}. ESP/ENG/POR speaker .}$
 
-$\text{\color{#925ea0}. unlabeled random guy . }$
+$\text{\color{#925ea0}. bicurious random guy . }$
 
 $\text{\color{#925ea0}. very reserved but i would be glad to chat, i will probably not be the first to interact out of anxiety though.}$
 
